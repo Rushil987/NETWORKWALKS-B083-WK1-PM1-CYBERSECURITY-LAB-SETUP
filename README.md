@@ -308,7 +308,7 @@ This laboratory is intended strictly for education purposes only.
 **Rushil Madia**\
 Cybersecurity Professional B083
 
-LinkedIn: [https://www.linkedin.com/in/waqaskarim/](https://www.linkedin.com/in/rushilmadia/)
+LinkedIn: [https://www.linkedin.com/in/rushilmadia/](https://www.linkedin.com/in/rushilmadia/)
 
 ---
 
